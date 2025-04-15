@@ -2,7 +2,7 @@
 🎓 Information Technology Student  
 
 ✨ Sharing what I can
-    Always curious. Always learning.
+Always curious. Always learning.
 
 
 
