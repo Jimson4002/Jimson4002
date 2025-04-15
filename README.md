@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jimson4002
+Sharing what I can
 
 
 <!---
